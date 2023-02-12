@@ -13,7 +13,7 @@ Various Competitve competition are like international/national masterchef where 
 types of cook.
 
 
-My first dish is maggi . Every one can make it  if they learn about it. Initial of making chinese chowmin that is symmetric 
+My first dish is maggi . Every one can make it  if they learn about it. Initial for making chinese chowmin that is symmetric 
 patterns 👍.
 Other dishes are  on the way.
 Hope you are ready of the journey .
